@@ -21,5 +21,3 @@ http://wa.me/523310728845
 | Twitter     | https://twitter.com/LeonisaGDL |
 | Telegram    | https://t.me/LeonisaGDL |
 | Whatsapp    | https://chat.whatsapp.com/CPvc6IhILzfFGhFt4kbEN9 |
-| ----------- | ----------- |
-
